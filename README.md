@@ -5,7 +5,7 @@ Hello! I'm Chau Ai Vin from 🌴 Kluang, Johor. Currently pursuing my Master in 
 ## Education 🎓
 
 📚 Bachelor in International Business (Honours) 
-Tunku Abdul Rahman University of Management and Technology, Kuala Lumpur Main Campus (2022 – 2024)
+Tunku Abdul Rahman University of Management and Technology, Kuala Lumpur Main Campus (Nov 2022 – Nov 2024)
 
 ## Work Experience 💼
 
