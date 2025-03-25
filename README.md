@@ -10,11 +10,14 @@ Tunku Abdul Rahman University of Management and Technology, Kuala Lumpur Main Ca
 ## Work Experience 💼
 
 📝 Internship at Apex Uniparts Sdn. Bhd., Kluang, Johor (Oct 2023 – Jan 2024)
+
 📂 Assistant at KC Chia & Noor, Chartered Accountants, Kluang, Johor (Jun – Oct 2022)
+
 📚 Teaching Assistant at Lexue Education Tuition Centre, Kluang, Johor (Jun – Nov 2017)
 
 ## Skills 🚀
 
 📊 Excel Spreadsheet
+
 🔍 RapidMiner
 
